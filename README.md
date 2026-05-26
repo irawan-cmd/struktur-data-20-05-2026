@@ -1,0 +1,1 @@
+# struktur-data-20-05-2026
